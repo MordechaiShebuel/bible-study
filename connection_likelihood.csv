@@ -1,0 +1,8 @@
+From\To,Pauline Epistles,Synoptic Narrative,Johannine Epistles,Practical Faith & Works,Eschatological & Diverse,Torah,Nevi'im/Ketuvim
+Pauline Epistles,-,0.6,0.8,0.7,0.5,0.3,0.2
+Synoptic Narrative,0.6,-,0.5,0.6,0.4,0.4,0.3
+Johannine Epistles,0.8,0.5,-,0.6,0.4,0.3,0.2
+Practical Faith & Works,0.7,0.6,0.6,-,0.7,0.5,0.4
+Eschatological & Diverse,0.5,0.4,0.4,0.7,-,0.6,0.5
+Torah,0.3,0.4,0.3,0.5,0.6,-,0.8
+Nevi'im/Ketuvim,0.2,0.3,0.2,0.4,0.5,0.8,-
