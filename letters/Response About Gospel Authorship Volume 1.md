@@ -1,140 +1,171 @@
-“*where did they (Gospel writers) get their ideas from?*”
+**Response to @Catholiccom on X:**  
 
 
-Doesn’t matter, logical fallacy – the origin of a false idea really doesn’t matter. But you want my honest opinion? The NT is influenced by the lying spirit mentioned in 1 Kings 22:19-22. This is why you see so many negative ideas fulfilled.   
-  
-The fisher of men – Jer 16:16-20, Hab 1:14-17  
-The thief in the night – Ex 22:2  
-The one who demands your right eye – 1 Sam 11:1-2  
-The king of Jerusalem hung from a tree and put in a cave and a stone rolled in – Joshua 10
-
-The one who trusted in Egypt (and Jesus is an Egyptian myth, the son of Ra who dies and is resurrected?) – Isaiah 36:6 – this is the only verse in the whole of Tanak that actually says, “his hands were pierced”
-
-The one who castrates you? – Dt 23:1  
-Calls all foods now clean? – Gen 3:4  
-  
-There’s so many of these ideas spread throughout Tanak to think it is coincidental, Christians cherry pick positive allusions, and ignore the **NUMEROUS** negative allusions.
+*The evidence suggests Matthew, Mark, Luke, and John did write the Gospels. *
 
 
-“*If they independently came to the same conclusions being geographically distant”*
+There is no evidence to support that, the first time these names were mentioned was within the second to third century. None of the documents say who wrote them, “Luke” just tells us who he is writing to, the man named, “Theophilus” which if you study the origins of their pagan church was a Bishop in 120 CE.  This makes sense as no “eary church Father” quoted “Luke” prior to this date. 
 
 
-You’ve created a straw man fallacy here.   
-  
-1. Matthew and Luke both plagiarized and changed Mark the earliest Gospel.   
-  
-2. Mark had no virgin birth and had his family calling him, “out of his mind” (Which fulfills Zech 13 in regards to the false prophet, which interestingly some Christians actually point to as fulfillment of Jesus)  
-  
-3. Matthew and Luke make corrections (as they see it) to the source material. For example, Mark originally ended with just an empty tomb. He had the women flee in fear, and tell no one. Matthew changed this, and had Jesus appear to them before they told everyone.  
-  
-4. The Resurrection narrative because there is no earlier source is absolutely the weakest link. You have five different testimonies and they have minor to significant variations. Even within the same Gospel due to redactions, you have Jesus telling Mary (who is alone in John) “do not touch me, I still must ascend to My God and Your God.” (And God cannot have a God btw)   
-  
-Then just a scene later, the insertion of the Thomas narrative to combat the distributed Gospel of Thomas that Rome rejected?  
-  
-Thomas had to physically touch Jesus – but this also contradicts Luke/Matthew and Paul whom Jesus didn’t have a physical body but spiritual, that’s why he was changing forms in Luke and walking through locked doors.   
-  
-This is clearly what Paul says – Paul’s resurrection is NOT physical, it is purely spiritual, a spiritual body replaces the physical.   
-  
-Paul had a Platonic view of the body, that it was corruptible and that life here on Earth is like Plato’s Cave allegory, that the “law is shadows” of things to come. This is purely Platonic reasoning.
+***The names attached to the Gospels were in use in the first century. ***
 
 
-So in conclusion what inspired the Gospel writers?  
+I’ve read the earliest Church history, this is simply not true and it gets even worse. “John” wasn’t quoted directly (even without his name) until Origen in 185 CE. Justin Martyr in his straw man book debate with “Trypho” would have had ample opportunity to prove his claims by quoting John just as Christians do today in debates.  
   
-1. Paul, who was harmonizing Zoroastrain influenced and Hellenized Judaism with his own esoteric drug induced visions.
-
-2. Esoteric writings from Hellenized Jews, including Philo for the Gospel of John. We know Philo influenced John as the earlier books didn’t yet have access to those ideas that were not yet created. We know the ideas in Maccabees of an innocent man dying for the wicked also infleunced the NT. The Demonology in Tobit clearly influenced Jesus, you’ll notice that Moses, nor any other prophet was ever casting out demons?
+He never quoted any portion of the Gospel attributed to John. (that is 150 CE)
 
 
-“*it mean they either have a common source*”  
-  
-There are actually quite seismic differences between them, Luke/Acts doesn’t teach that Jesus died for sin as one example. John has no birth, no baptism and no temptation – it moves the whipping of the money changers (and his action here violates the law of God given to Moses!) to the first passover instead of the last. The crucifixion in John is a day earlier. The prayer is opposite of the Synoptics, the statement on the cross opposite.  
-  
-“*My God, My God why have you forsaken me.*”  
-  
-John saw the cross as victory, so changed it. Also? How can God forsake God? Christians answer for this is utter philosophical nonsense.  
-  
-**“It is finished”.**
+*Had the Gospels circulated without names, or under any other names, for an extended period, they would have come to be called different things, the same way that there are multiple titles for many ancient works. *
 
 
-**See the difference? No longer is God forsaking God, no longer is the cross a message of possible defeat – from the beginning it is a sign of victory. Whoever wrote John wasn’t attempting to complement the writings of the Synoptics. You want more evidence of that?  
-  
-\{Jhn 20:30 LSB\} Therefore many other signs Jesus also did in the presence of the disciples, which are not written in this book;  
-  
-This ending is repeated twice, showing how redacted this writing is -however the original intent of the author is made nakedly apparent.  
-  
-He could have done something like this:**
-
-**\{2Ki 13:12 LSB\} Now the rest of the acts of Joash and all that he did and his might with which he fought against Amaziah king of Judah, are they not written in the Book of the Chronicles of the Kings of Israel?**
+Here’s a quote from Ignatius while quoting Matthew. (He never quoted Mark, Luke or John)
 
 
-**\{2Ch 24:27 LSB\} Now as to his sons and the many oracles against him and the rebuilding of the house of God, behold, they are written in the treatise of the Book of the Kings. Then Amaziah his son became king in his place.  
+To the Magnesians, section 10:  
+“how shall we be able to live apart from Him, whose disciples the prophets themselves in the Spirit did wait for Him as their Teacher? [And therefore He whom they rightly waited for, having come, raised them from the dead ](https://www.christianwritings.org/bible/matthew/matt-27/#v52%23:~:text=The%20tombs%20were%20opened%2C%20and%20many%20bodies%20of%20the%20saints%20who%20had%20fallen%20asleep%20were%20raised%3B).”  
   
-This is how I know these Gospel writers weren’t writing complementary accounts. He could have said, “The rest of the acts of Jesus are recorded in Luke and Acts” or some other Gospel, or all four.  
-  
-But he mentions NONE OF THEM.  
-  
-They didn’t expect you to read the competing accounts.**  
-  
-“*which would be the Gospel of John, or the previous Gospels were enough for them to agree that Jesus is God*”
+The quote is from Matt 27:52 right? Or did the later Catholic redactor put that text into Matthew, similar to Matt 28:19-20? We don’t really know that, but we do know Ignatius didn’t reference “Matthew” while quoting this.
 
 
-None of the Gospels say this – the NT is loaded with anachronistic issues, and contradictions internally and to the law of God. None of the Gospels or Paul say that Jesus \>\> IS \<\< God.  
-  
-Take John 20:17 the clearest example of this.  
-  
-\{Jhn 20:17 NKJV\} Jesus said to her, "Do not cling to Me, for I have not yet ascended to My Father; but go to My brethren and say to them, 'I am ascending to My Father and your Father, and \[to\] My God and your God.' "  
-  
-God wouldn’t have to ascend to “MY GOD”.  
-  
-And this isn’t the only time Jesus post resurrection uses this term.  
-  
-Rev 3:2 "Be watchful, and strengthen the things which remain, that are ready to die, for I have not found your works perfect before MY GOD.  
-  
-Notice he doesn’t say, “BEFORE ME” he says “MY GOD”
+*However, they didn’t. In ancient documents they are always referred to as the Gospels of Matthew, Mark, Luke, and John. *
 
 
-“*And speaking of P52 as a fragment, do u know how the papyrus works? It’s a pure luck we’ve found at least something that old.*”  
+I just quoted Ignatius quoting Matthew – did he refer to it by it’s name? Let’s go forward a little bit – Polycarp, who also never quoted from Mark, Luke or John.  
   
-Do you trust carbon dating of materials that are millions of years old?  
+Matrydom of Polycarp Section 4:  
+Now one named Quintus, a Phrygian, who was but lately come from Phrygia, when he saw the wild beasts, became afraid. This was the man who forced himself and some others to come forward voluntarily for trial. Him the proconsul, after many entreaties, persuaded to swear and to offer sacrifice. [Wherefore, brethren, we do not commend those who give themselves up to suffering, seeing the Gospel does not teach so to do.](https://www.christianwritings.org/bible/matthew/matt-10/#v23%23:~:text=But%20when%20they%20persecute%20you%20in%20this%20city%2C%20flee%20into%20the%20next%2C%20for%20most%20certainly%20I%20tell%20you%2C%20you%20will%20not%20have%20gone%20through%20the%20cities%20of%20Israel%20until%20the%20Son%20of%20Man%20has%20come.)  
   
-I’m gonna guess no.  
+This quote is from Matthew 10:23. Do you notice that he also doesn’t say where this quote came from? This is about 20 years after Ignatius. Don’t trust me on this, research it yourself! And again, go earlier and there is even a greater disconnect in actual NT references. St. Clement of Rome, never quoted the NT books we have. How is that possible if they were finished early and had names attached to them?  
   
-So how do you believe they can accurately date a fragment of manuscript to the early second century?  
+It’s much more likely the entire NT canon was written early 100s CE, and they based much of their theology and ideas on the writings of the “Church Fathers” who had come before them.
+
+
+*Unlike disputed books such as Hebrews, no ancient source ever proposes an alternative author for any of the four Gospels. *
+
+
+This is simpy disingenuios for several reasons.
+
+
+1. The fact that the religious people that treasured these writings never proposed an alternative author proves nothing.
+
+
+2. The Gospel of John was disputed by many overseers. 2 Peter as well, but that’s not a Gospel. 
+
+
+3. He admits Hebrews is disputed, yet there was no issue including this in their canon.
+
+
+*When the Gospels were read in church, the congregation needed to be told what was being read, and there needed to be a way to distinguish them from each other, since so much of their content was similar, with each telling the story of Jesus. *
+
+
+Where’s his evidence that this ever happened in the first century? Especially since Clement of Rome never quoted the NT in his teachings, just the Greek Septuagint what Christians call the “Old Testament”. 
+
+
+*The churches chose to refer to them by their authors.* 
+
+
+If this was true we’d have evidence of it in the earliest writings and we don’t.
+
+
+This need to distinguish them existed as soon as there was more than one Gospel, and so the names were used immediately, not at a later date. 
+
+
+See now we’re getting to the rub, when Origen created these names. Why did the earlier church before him not use Mark, Luke and John?   
   
-You can’t be serious with that – there’s no way they have that kind of accuracy.  
+It’s likely Luke and John didn’t yet exist in 110 CE, but none of these early Christ cults expected you to be reading the competition’s Gospel message. This is why Marcion took “Luke” (Which I have disagreements with as well – I think he took what became John, it is far more Marcionite in tone) and called that his “Gospel”.   
   
-I also stand by that none of the earliest “Church Fathers” referenced or quoted from John.  
+There weren’t Christ cults in the first century using four Gospels, they each had a preferred one. Think about it logically, John is clearly written to remove Jesus’ humanity, it removes the fake virgin birth which is taking Isaiah 7 a prophesy to King Ahaz out of context. It removed the baptism, he just met with John the immerser, he didn’t get immersed by him for repentance like the other Gospel writers kept in place. He then is not tempted immediately after that, he goes to a wedding to copy Dionysus and turn water into wine.
+
+
+Then you have the Ebionite Gospel which mid first century Romans declared was a modified version of Matthew, without the virgin birth narrative. I also have issues with that belief as Matthew behind John is the second most anti-semitic and Marcionite Gospel. People focus on Matt 5:17-19, but right after saying that he goes on to explain why Moses is insufficient. In the dialog on adultery and re-marriage, he does the same thing. Moses was not only insufficient for truth, he was modifying Torah due to the hardness of their hearts. He goes on to describe the ideal state of man as castrated. This directly contradicts Dt 23:1, and is quite interesting that Christians are okay with Jesus commanding such a body defiling act but angry with Moses commanding circumcision.
+
+
+*This is a strong indication that the names are accurate.* 
+
+
+His evidence is not evidence at all – it’s already been debunked. None of the pre 150 writers who formed what became the Roman Church inferred names over the Gospels they were quoting. Their complete absence from Clement of Rome, pushes the actual composition dating much further back as well.
+
+
+*If OP is correct that the traditional authors didn't write the Gospels, he needs to explain how those names came into universal use.* 
+
+
+That’s how “Faith” books work. Moses didn’t write the Torah, it is an amalgamation over centuries of multiple authors with competing interests. This is why commandments can contradict one another. The Passover command in Exodus 12, contradicts the command in Deuteronomy 16.
+
+
+The commands of sacrifice in the earlier traditions also are clearly contradicting the need for Levitical authority.  
   
-The earliest, Clement of Rome, only quoted from the Jewish canon, he never referenced anything other than Paul’s seven undisputed letters otherwise. No Gospels, No Revelation, none of that rest of what became the NT was quoted by Clement in 95 CE.  
+Why would the Christian church and their writings operate any differently? They get these writings that confirm their belief and just accept them. I’ve seen the same thing in groups who accept the book of Enoch, even though it is clearly Hellenized fan fiction of the Hebrew writings. 
+
+
+*The most common explanation put forth is that early Christian communities attached authoritative-sounding authors' names to the texts.* 
+
+
+That fits 
+
+
+This is exactly what we see forgers in later centuries doing when they circulated false gospels. 
+
+
+What makes you so certain the Roman inherited Gospels didn’t do the same thing? Critical scholars all agree the Pastoral epistles are written decades after Paul died, have a different tone than his primary letters. 1 and 2 Peter were most certainly pseudepigrapha, most Christian critical scholars acknowledge that 2 Peter doesn’t fit the style of an illiterate fisherman.
+
+
+John’s Gospel is the same way, theologically and fundamentally contradicting many of the statements Jesus made in the Synoptics. It is also a VERY high Greek, it’s not something the illiterate fisherman John would be able to write. 
+
+
+*But if someone were inventing authors for credibility, these are strange choices: *
+
+*Mark wasn't an apostle at all; he was just Peter's secretary*
+
+
+Any stranger than the Pastoral epistles pretending to be Paul, or Peter’s epistles pretending to be Peter? The fact is the Gospels don’t even name all 12 disciples. It is Church tradition. The Gospels themselves are not labeled at all, they are anonymous with someone else assigning a name. So the anonymous donor of the name would choose a name that was a “secretary”. (Which is a ridiculous notion in and of itself, that an impoverished Jew had a secretary following him around??)
+
+
+*and Scripture itself remembers him abandoning Paul's first mission* 
+
+
+You do understand that Luke and Acts are not literal or even history? That both were written several decades after “Mark” was written? That the goal in that much like the goal in Mark naming Matthew Levi was to act like the other Gospels didn’t even exist?  
   
-“*So u demanding types of evidence that just cannot exist*”  
+This is also why the second century Gospel of John, has Thomas stick his hands inside of Jesus after Jesus told Mary, “do not touch me”.  
   
-What am I demanding?  
+The Gospel of Thomas was going around, and saying things the Roman church disagreed with? So what do you do? You insert a narrative with that man, and have him physically touch Jesus to contradict that Gospel.
+
+
+*an episode serious enough to split Paul and Barnabas (Acts 15:36-41).* 
+
+
+According to a document written after 110 CE, not by an eye witness?
+
+
+*Luke wasn't an apostle either, and is mentioned only three times in Paul's letters.* 
+
+
+Yet you trust this man’s words about what happened? He wasn’t an apostle or an eye witness but a doctor that hung around the movement?
+
+
+*Matthew is the strangest choice of all: a former tax collector, the kind of man Jews despised as a Roman collaborator (Matt. 18:17),* 
+
+
+Matthew wasn’t even his name, both Mark and Luke name him Levi. Matthew is a fabrication by the author to change the character, and remember Jesus in Matthew tells you to pay your taxes.
+
+
+*somehow attached to the most Jewish Gospel of the four.* 
+
+
+There’s no world where Matthew is the most Jewish of the pagan Gospels. It is the second most anti-semitic / anti-Jewish Gospels in the NT. It has Jesus attacking the Pharisees for an entire chapter. (Matt 23) It has Jesus attacking them for washing their hands. It has the Jews themselves perform a blood libel over themselves, something that violates Torah. (Dt 24:16)
+
+
+It’s so very strange Christians believe this when Luke presents the most Torah observant Jesus of the four Gospels, and the message is not “believe upon me or be denied by the Father” – it is, “They have the law and the Prophets.”
+
+
+*Who would forge authority by picking a deserter, a nobody, and a tax man?* 
+
+
+Rome. The Gospels are Roman, not Hebrew. Why do you think Jews don’t believe in it and even the Jews of that time that did believe the false Messiah Yeshua/Jesus was the Messiah? They had their own Gospel, that the Romans called an edited Matthew. Whether or not it was we don’t know, we just have the words of the pagans to describe it. Was he a tax man in their version? Again we don’t know, we do know the name of the “tax man” in Mark and Luke was Levi not Matthew.
+
+
+*No one, that's who.*
+
+
+* Who would canonize Hebrews when there is no authoritative name attached to it all? Who would canonize 2 Peter when it’s so clearly pseudepigrapha?  
   
-1. The NT not teach a message that contradicts the law and the Prophets.  
-  
-Failed.  
-  
-2. The NT externally match the various Christ cults of the first century?  
-  
-Failed.  
-  
-The earliest “Christians” were Jews.  
-  
-Jesus in Matthew commanded his disciples to attend Synagogue learn and do Moses. (Mt 23:1-3)  
-  
-James (Jacob the brother of Jesus) commands the same of Gentiles with his Noachide like covenant.  
-  
-(Acts 15:21) that they would be going to Synagogue and learning Moses.  
-  
-Where was Paul according to Acts 18:4? In a Synagogue with Jews and Greeks.  
-  
-Post 70 CE, that all changed and a fragment broke off and started to deify the man Jesus, and called the Jews (Ebionites) Heretics.  
-  
-“*which is a big red flag of intellectual dishonesty.*”  
-  
-The red flag is believing God who is eternal and says he is not a man (Num 23:19) became a man (Psalm 146:3, Jer 17:5-6, DT 4:15-16) and died for you. (Exodus 32:33, Dt 24:16, Ezekiel 18:19-25, Jer 31:29-30) also this God says what goes in your mouth cannot defile you, (Is 66:15-17, Lev 11, Gen 4:6) that to have everlasting life you must put his blood and body inside of your own. (Lev 7:27, Psalm 16:4)   
-  
-Modern Christians want to try and say that’s some sort of allegory as if calling evil good can nullify the evil of it all. (Isaiah 5:20-23)  
-  
-Christianity is blasphemy according to the law and the Prophets. That’s the most important take away you should have from this conversation.
+Rome that’s who. They didn’t care about authenticity, their goal was synergism and defending their faith. That’s why they also so heavily redacted these documents and we have evidence of that. 
